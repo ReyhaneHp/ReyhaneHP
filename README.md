@@ -5,4 +5,4 @@
 - 👯 I’m looking to collaborate on Biomechatronics and Robotics Systems
 - 📫 How to reach me: rey.hadipour@gmail.com
 - 😄 Pronouns: She/her/hers
-- ⚡ Fun fact: Always looking for life on the edge!
+- ⚡ Fun fact: Always looking to live on the edge!
